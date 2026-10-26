@@ -1,2 +1,2 @@
 # Charity
-Web Designer and Developer with over 3 months of experience, Helping business and Creators, Build Stunning Functional Websites.
+Web Designer and Developer, business and Creators, Build Stunning Functional Websites.
